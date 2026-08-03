@@ -1,16 +1,27 @@
-## Hi there 👋
+  <div align="center">
+<h1 align="center">HEYAA!<img width="30" src="https://github.com/1999AZZAR/1999AZZAR/blob/main/resources/img/waving.gif">, I'M MIKAH! OR MK! </h1>
+<h4 align="center"> i'm a huge lmk enthusiast, if u couldn't tell lelele
+</div>
+<div align="center">
 
-<!--
-**mysticxiaotian/mysticxiaotian** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+</div>
+<hr>
+<details>
+psst hi (i just put this bc im genuinely lost and CANNOT code for the life of me
 
-Here are some ideas to get you started:
+  <summary>IM USUALLY ON DISCORD so i might not be too active here!</summary>
+  <div>
+  <samp>
+          </a>
+        </p>
+</details>
+    
+  <samp>
+  <br>
+![-`♡´-]<img width="500" height="500" alt="Untitled475_20260802191649" src="https://github.com/user-attachments/assets/9bf62a04-20e7-4db6-983b-a805bd80676c" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+  </details>
+<details>
+  <summary>strawpage soon :3 
