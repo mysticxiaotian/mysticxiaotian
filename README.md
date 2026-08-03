@@ -24,4 +24,4 @@ psst hi (i just put this bc im genuinely lost and CANNOT code for the life of me
 
   </details>
 <details>
-  <summary>strawpage soon :3 
+  <summary>[strawpage](https://mysticxiaotian.straw.page)
