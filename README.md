@@ -7,7 +7,7 @@
 </div>
 <hr>
 <details>
-psst hi (i just put this bc im genuinely lost and CANNOT code for the life of me anyways ILY GUYS J, M, C
+psst hi i just put this bc im genuinely lost and CANNOT code for the life of me anyways ILY GUYS J, M, C
 
   <summary>IM USUALLY ON DISCORD so i might not be too active here!</summary>
   <div>
